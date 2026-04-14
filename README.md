@@ -1,4 +1,4 @@
-# 💫 Sofia Guerra
+# 👩🏻‍💻 Sofia Guerra
 
 CC student 💻 | AI enthusiast 🤖 | Always learning 🚀
 <!--
